@@ -13,4 +13,4 @@ https://github.com/valentinocrespo80?tab=repositories
 https://www.linkedin.com/in/valentino-crespo-372982138/
 
 ### Resume
-"C:\Users\valentinocrespo\Documents\Copy of LC RESUME TEMPLATE_ No Experience_No Degree 021219.pdf"
+https://github.com/valentinocrespo80/liftoff-assignments/blob/master/Copy%20of%20LC%20RESUME%20TEMPLATE_%20No%20Experience_No%20Degree%20021219.pdf
